@@ -1,4 +1,3 @@
-##
 A remarkably self-motivated, trustworthy, and committed Senior Security Consultant aiming to flourish with forward-looking and newfangled companies. Known for capacity of organization, multi-lingual skills, and ability to establish and maintain excellent working relations with people of different backgrounds. Sense of leadership, flexible, energetic, and effective at time management and prioritizing tasks to achieve deadlines. —— Tanium Certified Operator (TCO) - Skybox Certified Vulnerability Control Expert (SCVCE) - Skybox Certified Assurance Expert (SCAE) - Certified Ethical Hacker (CEH)
 ---
 
